@@ -1,4 +1,7 @@
  <p align="center">
+  “ Je t'aime dans tous les univers ”
+  <p align="center">
+   <img width="500" alt="1000092100" src="https://github.com/user-attachments/assets/7577c736-e6ad-443a-8bb6-13f998430fda" />
    ୨୧⌢⌢⌢⌢⌢୨꒰  🪞  ꒱୧⌢⌢⌢⌢⌢୨୧
  <p align="center">
      ೀ  @ tea_.reverie on ig  .𖥔🩰 
