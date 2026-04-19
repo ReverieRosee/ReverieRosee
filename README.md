@@ -16,9 +16,12 @@
   “ Je t'aime dans tous les univers ”
   <p align="center">
    <img width="500" alt="1000092100" src="https://github.com/user-attachments/assets/7577c736-e6ad-443a-8bb6-13f998430fda" />
+     <p align="center">
+        “ The only woman I'll look for across every world, the only girl I'll risk everything for. ”
+        <p align="center">
+          ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ -Rafayel
+        <p align="center">
      <img width="500" src="https://github.com/user-attachments/assets/e4a5dbe0-372a-46b4-95a2-edf2c065b014" alt=![Untitled518_0000-00-02_2_1]>
-   <p align="center">
-     <img width="500" src="https://github.com/user-attachments/assets/c4379cd9-56e2-4371-9687-5478ed35feab" alt=![Untitled518_0000-00-02_8_20260305215636]>
     <p align="center">
       * ꒷︶꒦︶ ୨୧ ︶꒦꒷ ୨ɞ꒷︶꒷꒥꒷
        <p align="center">
