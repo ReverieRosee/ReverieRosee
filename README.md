@@ -11,7 +11,7 @@
  <p align="center">
   rmking gh, wip !
   <p align="center">
-  <img width="1500" height="500" alt="1000092135" src="https://github.com/user-attachments/assets/230418c0-c241-49cd-9933-80548f6f660e" />
+  <img width="500" alt="1000092135" src="https://github.com/user-attachments/assets/230418c0-c241-49cd-9933-80548f6f660e" />
   <p align="center">
   “ Je t'aime dans tous les univers ”
   <p align="center">
